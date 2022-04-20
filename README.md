@@ -1,1 +1,1 @@
-# tecno-multimedial-1
+# tecnomultimedia
